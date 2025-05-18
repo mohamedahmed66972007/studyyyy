@@ -1,1 +1,1 @@
-# studyyyy
+# study
